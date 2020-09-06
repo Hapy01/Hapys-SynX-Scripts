@@ -20,7 +20,7 @@ Arsenal Guis / Cheats,
 
 ect.
 
-::::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+: : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : :
 
 Some Good Exploits.
 
@@ -36,7 +36,7 @@ its That Are Known To Be Good And Are Most Likely Compatable With These Scripts.
 
 5. JJ Sploit (Free) (Wouldent Recommend) :  https://wearedevs.net/d/JJSploit
 
-:::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+: : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : :
 
 Some Good PAID Script
 
@@ -52,4 +52,10 @@ Just Search Them On Yt
 
 5. HattoriHub ($6.60 USD)
 
-:::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+: : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : :
+
+Script Not Working?
+
+DM Hapy#8812 on Discord
+
+: : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : :
