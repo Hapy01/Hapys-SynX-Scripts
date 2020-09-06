@@ -32,6 +32,24 @@ its That Are Known To Be Good And Are Most Likely Compatable With These Scripts.
 
 3. Seintinal : https://elymltd.selly.store/product/a6576d71
 
-4. JJ Sploit (Free) (Wouldent Recommend) :  https://wearedevs.net/d/JJSploit
+4. Krnl (Free) : https://wearedevs.net/d/Krnl
 
-5. Krnl   (uldnt Recommend) :
+5. JJ Sploit (Free) (Wouldent Recommend) :  https://wearedevs.net/d/JJSploit
+
+:::::::::::::::::::::::::::::::::::::::::::::::::::::::::
+
+Some Good PAID Script
+
+Just Search Them On Yt
+
+1. CarrotHub ($10 USD)
+
+2. Cuteware ($10 USD) (Counter Blox Only)
+
+3. Linoria Hub (7 USD)
+
+4. Atzub Hub ($8 USD)
+
+5. HattoriHub ($6.60 USD)
+
+:::::::::::::::::::::::::::::::::::::::::::::::::::::::::
