@@ -54,6 +54,12 @@ Just Search Them On Yt
 
 : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : : :
 
+INFO:
+
+Most Of These Scripts Arent Mine So i Dont Take Credit
+
+
+
 Script Not Working?
 
 DM Hapy#8812 on Discord
